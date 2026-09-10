@@ -1,0 +1,1 @@
+# 2026_2AI_1_Smehyl_Cvicenia
